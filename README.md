@@ -1,1 +1,1 @@
-# RED-VELVET-CAKE
+This velvety red dessert is a please to the eyes, not to forget the taste. Soft, Moist layers of Mild Chocolate Cake and whipped cream cheese frosting together just melts in the mouth.. Baked in a cooker and without eggs, makes this a to-go recipe anytime with no fuss! So, why dont you try making this Red Velvet Cake which is a part of Eggless Baking Without Oven?
